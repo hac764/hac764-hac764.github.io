@@ -16,3 +16,5 @@ Er gehört zur Spezies der Hobbits, ist ein friedliebender Geselle und trinkfest
 * ist ein umgänglicher Mensch
 
 > It’s like in the great stories, Mr. Frodo. The ones that really mattered. Full of darkness and danger they were. And sometimes you didn’t want to know the end… because how could the end be happy? How could the world go back to the way > > it was when so much bad had happened? But in the end, it’s only a passing thing… this shadow. Even darkness must pass.
+
+<img src="https://i2.wp.com/zacharytotah.com/wp-content/uploads/2015/08/Samwise-Gamgee.jpg?resize=300%2C226"/>
